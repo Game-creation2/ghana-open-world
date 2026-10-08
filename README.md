@@ -1,0 +1,1 @@
+# ghana-open-world
